@@ -1,2 +1,2 @@
 # Digital-Skills
-Đây là kho lưu trữ của tôi.
+4956010067 - Đặng Lê Bảo Ngọc : Đây là repository đầu tiên.
